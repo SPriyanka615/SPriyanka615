@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SPriyanka615
+- 👀 I’m interested in fashion & design
+- 🌱 I’m currently learning fashion technology
+- 💞️ I’m looking to collaborate on fashion industries
+- 📫 How to reach me .. priyankak.ft20@nsut.ac.in
